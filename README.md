@@ -9,3 +9,7 @@ Meu nome é Ana Laura
 ### Vocé entrar em contato comigo 📫
 
 ana.lima.freitas@escola.pr.gov.br
+
+@analauralima
+
+
